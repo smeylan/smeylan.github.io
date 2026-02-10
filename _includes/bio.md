@@ -9,3 +9,4 @@ Previously, I was an Associate Project Scientist at the University of California
 With the exception of a few key projects, my academic work has been on hold since December 2025. For posterity I still maintain my page of [Publications](/publications) and [Research Topics](/research). 
 
 
+
